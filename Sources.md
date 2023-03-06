@@ -1,5 +1,5 @@
 [jose-losada-ZPod9V7zB3A-unsplash.jpg](https://unsplash.com/photos/ZPod9V7zB3A) by [Jose Losada](https://unsplash.com/@joselosada) of unsplash.com with Unsplash licence<br>
-https://www.rawpixel.com/image/6510190/png-sticker-vintage with CC0<br>
+[Wad of Cash - US Dollars]([https://www.rawpixel.com/image/6510190/png-sticker-vintag](https://openclipart.org/detail/320398/wad-of-cash-us-dollars) by [j4p4n](https://openclipart.org/artist/j4p4n) of openclipart.com with CC0<br>
 [man wearing gray blazer photo](https://unsplash.com/photos/G3ZAhAJ2ojc) by [itay verchik](https://unsplash.com/@itayverchik) of unsplash.com with Unsplash licence <br>
 [free suit image](https://unsplash.com/photos/6ZKGBzrDd3I) by [itay verchik](https://unsplash.com/@itayverchik) of unsplash.com with Unsplash licence <br>
 [Money in hands](https://www.flickr.com/photos/68751915@N05/6848823919/) by [401(K) 2012](https://www.flickr.com/photos/68751915@N05/) of flickr.com with CC BY-SA 2.0 <br>
